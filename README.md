@@ -2,7 +2,6 @@ Comprehensive-Digital-Marketing-on-Noise
 
 PPTX Document is uploaded
 
-Demo Video
 
 Demo Video Link :
-https://drive.google.com/drive/folders/112NyLvkxhpJBjmY0bJbYYGYdty428QIz
+https://drive.google.com/file/d/1gE4Q4XnXuHbTf9Jwz8WxveOyt62ReJuO/view?usp=drive_link
